@@ -1,4 +1,4 @@
-hi 
+oju ti ti awon ara ilorin! 
 my own practice~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~*****************~~~~~~~~~~~~~~~~~~~~~~
 Ose Olorun, Oo boju mi je!!!!
 11/17/23
