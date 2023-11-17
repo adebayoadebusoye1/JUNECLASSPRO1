@@ -1,3 +1,4 @@
+Ose Olorun, Oo boju mi je!!!!
 11/17/23
 $4500 from accident
 $7000 from susu
